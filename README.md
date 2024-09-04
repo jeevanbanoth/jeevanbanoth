@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **jbanoth@umassd.edu**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1xx-k_KWYen-TuJXtX89Nvjrjfx8kXE2IhpSokTIm5kk/edit?usp=sharing](https://docs.google.com/document/d/1xx-k_KWYen-TuJXtX89Nvjrjfx8kXE2IhpSokTIm5kk/edit?usp=sharing)
+- 📄 Know about my experiences [https://docs.google.com/document/d/1xx-k_KWYen-TuJXtX89Nvjrjfx8kXE2IhpSokTIm5kk/edit?usp=sharing]([https://docs.google.com/document/d/1xx-k_KWYen-TuJXtX89Nvjrjfx8kXE2IhpSokTIm5kk/edit?usp=sharing](https://drive.google.com/file/d/1QAYw4RV8ro95Ip0_cf3e8TrDFwU27YoN/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
