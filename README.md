@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Jeevan Kumar Banoth</h1>
-<h3 align="center">An enthusiastic DS student from India and Currently in USA📍</h3>
+<h3 align="center">I am all about making data work for us..!</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=jeevanbanoth&label=Profile%20views&color=0e75b6&style=flat" alt="jeevanbanoth" /> </p>
 
