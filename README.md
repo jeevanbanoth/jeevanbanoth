@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **jbanoth@umassd.edu**
 
-- 📄 Know about my experiences (https://drive.google.com/file/d/1QAYw4RV8ro95Ip0_cf3e8TrDFwU27YoN/view?usp=sharing)
+- 📄 Know about my experiences (https://drive.google.com/file/d/1WDY3SnwSQXMZO2PemRA0Vt20gCZZIrKx/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
